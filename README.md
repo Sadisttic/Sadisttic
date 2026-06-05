@@ -1,1 +1,1 @@
-<p align="center">"Don't blind yourself to the reality of this cruel world."</p>
+<p align="center">"I don't owe you an explanation."</p>
